@@ -26,7 +26,7 @@ I enjoy building clean, useful, and easy-to-use websites and digital experiences
 
 ## Contact
 
-- **Phone:** [+250 788 454 675](tel:+250788377914)
+- **Phone:** [+250 788 837 7914](tel:+250788377914)
 - **Email:** [obedyishimwe@gmail.com](mailto:obedyishimwe@gmail.com)
 - **LinkedIn:** [linkedin.com/in/ishimwe-obedy-6bba40247](https://www.linkedin.com/in/ishimwe-obedy-6bba40247/)
 - **GitHub:** [github.com/ishimweobedy-cyber](https://github.com/ishimweobedy-cyber)
